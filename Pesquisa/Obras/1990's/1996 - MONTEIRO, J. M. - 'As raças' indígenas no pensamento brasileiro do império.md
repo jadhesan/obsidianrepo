@@ -7,7 +7,7 @@
             - [[Antropologia Biológica]]
                 - [[Racismo Científico]]
                 - [[Craniometria]]
-                - [[Determinismo Racial]]
+                - [[Determinismo racial]]
         - [[Etnologia Indígena]]
             - [[História do Indigenismo]]
                 - [[Indigenismo]]
