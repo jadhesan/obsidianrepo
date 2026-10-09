@@ -1,0 +1,1 @@
+Em [[2016. HARAWAY, D. Manifesto ciborgue]], matriz analítica estrutural de Haraway para a transição das sociedades industriais para redes informacionais

@@ -1,0 +1,1 @@
+[[1937. HOCART. Sistemas de parentesco]]: Tese criticada por Hocart, segundo a qual os termos teriam surgido na família consanguínea restrita e se estendido aos demais parentes.

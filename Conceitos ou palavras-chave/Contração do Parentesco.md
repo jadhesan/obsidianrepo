@@ -1,0 +1,1 @@
+[[1937. HOCART. Sistemas de parentesco]]: Processo oposto defendido por Hocart, demonstrando que o uso restrito moderno decorre do encolhimento do grupo doméstico e da perda de papéis rituais comunitários
